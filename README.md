@@ -1,4 +1,4 @@
-### Shola Olushegun. Olugboye · GRC Analyst
+### Olushegun Shola Olugboye · GRC Analyst
 
 ISO/IEC 27001 · NIST CSF 2.0 · Risk assessment · Third-party risk · AI governance
 
